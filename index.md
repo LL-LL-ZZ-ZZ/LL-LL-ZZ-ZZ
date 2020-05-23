@@ -3,7 +3,8 @@
 ？？？<br/>
 ？？？<br/>
 ？？？<br/>
-OHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHH
+OHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHH<br />
+[LZNB的灾基](https://terraria-calamity-mod.fandom.com/zh/wiki/User:LZNB)
 
 ## Welcome to GitHub Pages
 
